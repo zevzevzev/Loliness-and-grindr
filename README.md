@@ -1,8 +1,11 @@
 Personal reflections on Grindr and loneliness
 
-| I don&#39;t feel so alone k
-wing that there are other gay people so close by, | Even if some of them are weird or rude. Cause a certain amount of any population is bound to be. | The primary function of Grindr is to meet and get to know new people. What you do with said people is up to you |
+| I don&#39;t feel so alone knowing that there are other gay people so close by, | Even if some of them are weird or rude. Cause a certain amount of any population is bound to be. | The primary function of Grindr is to meet and get to know new people. What you do with said people is up to you |
 | --- | --- | --- |
-| I still prefer Instagram, but no-one goes on it to talk, not even myself. | Nowhere do I feel more alone than at uni. Where there are a gazillion people I _could_ bond with but I can&#39;t | I like the Grindr grid layout because it&#39;s like the pick-and-mix at a cinema. |
+| I still prefer Instagram, but no-one goes on it to talk, not even myself. | Instagram has been designed to be an endless buffet of content, the consumption of which is a largely solitary task | I like the Grindr grid layout because it&#39;s like the pick-and-mix at a cinema. |
+| Grindr&#39;s interesting because it&#39;s not solely an online community because you only have access to people who are located close to you | For this assignment I originally wanted to create a mini thesis on technology&#39;s role in cosplay. | Or write a short story on homophobia in an Xbox 360 vc. But then I realised I belong to neither of those communities |
+| I feel that it&#39;s very important to ground your work in your own lived experiences. I do not cosplay, nor do I play videogames. | No-where do I feel more alone than at uni. Where there are a gazillion people I _could_ bond with but I can&#39;t | I feel CSM has been designed, or at least cultivated, to be a place of self-betterment. So most interactions feel empty ngl |
 | I find that Instagram isn&#39;t particularly good at fostering communities or long-lasting connections. It&#39;s like trying to grow vegetables in tarmac | If I wanted to create a tight-knit group of friends online I would use Reddit or Discord. | I feel like this is because Instagram is too generalised, literally everyone is on Instagram and there&#39;s no way of differentiating them |
-| Sometimes people disappear from Grindr. Where do they go??? | I like how on Grindr, you can ostensibly tell a lot about a person. | But you can&#39;t do this in real life. |
+| Ideally each of these little boxes would represent a different interview which I conducted using Grindr | But this project was a week long and also I was very busy with other stuff | I chose this format because it emulates the grid on the explore page of Grindr. |
+|
+Each square is a bite of information, a little story which makes up a larger narrative | I like how on Grindr, you can ostensibly tell a lot about a person. | But I can&#39;t do this in real life. |
