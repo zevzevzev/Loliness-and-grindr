@@ -1,6 +1,7 @@
 Personal reflections on Grindr and loneliness
 
 | I don&#39;t feel so alone knowing that there are other gay people so close by, | Even if some of them are weird or rude. Cause a certain amount of any population is bound to be. | The primary function of Grindr is to meet and get to know new people. What you do with said people is up to you |
+| --- | --- | --- |
 | I still prefer Instagram, but no-one goes on it to talk, not even myself. | Instagram has been designed to be an endless buffet of content, the consumption of which is a largely solitary task | I like the Grindr grid layout because it&#39;s like the pick-and-mix at a cinema. |
 | Grindr&#39;s interesting because it&#39;s not solely an online community because you only have access to people who are located close to you | For this assignment I originally wanted to create a mini thesis on technology&#39;s role in cosplay. | Or write a short story on homophobia in an Xbox 360 vc. But then I realised I belong to neither of those communities |
 | I feel that it&#39;s very important to ground your work in your own lived experiences. I do not cosplay, nor do I play videogames. | No-where do I feel more alone than at uni. Where there are a gazillion people I _could_ bond with but I can&#39;t | I feel CSM has been designed, or at least cultivated, to be a place of self-betterment. So most interactions feel empty ngl |
